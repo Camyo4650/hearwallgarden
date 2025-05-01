@@ -10,8 +10,7 @@ youtube [@hearwallgarden](https://www.youtube.com/@hearwallgarden)
 
 Welcome to my website for my new rock project! It is currently under construction, so pardon the rough look
 
-In the meantime, please feel free to check out my Bandcamp!
-https://hearwallgarden.bandcamp.com/
+In the meantime, please feel free to [check out my Bandcamp!](https://hearwallgarden.bandcamp.com/)
 
 If you like my content, please share it with others you think might enjoy it!
 
@@ -38,7 +37,7 @@ Wall Garden (project name) is the brainchild of Cameron Pilchard, a genre-fluid 
 - In general, I blend rock with ambient, post-rock, electronic, and experimental elements.
 
 **_Who are your favorite artists?_**
-- I like listening to all kinds of music. But I have a few favorites—Pink Floyd, Radiohead, Foo Fighters, Talk Talk, GY!BE, Car Seat Headrest, and Jack White to name a few
+- I like listening to all kinds of music. But I have a few favorites—Pink Floyd, Radiohead, Foo Fighters, Talk Talk, GY!BE, Car Seat Headrest, The Protomen, and Jack White to name a few
 - I also like some Western classical composers like Beethoven (5th, 7th and 9th are my favs), Ravel, Rachmaninoff (2nd symphony is my fav), and Mahler (3rd symphony my fav)
 
 ### For Musicians / Gearheads
