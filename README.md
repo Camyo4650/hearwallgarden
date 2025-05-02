@@ -15,7 +15,7 @@ In the meantime, please feel free to [check out my Bandcamp!](https://hearwallga
 If you like my content, please share it with others you think might enjoy it!
 
 ## Press-friendly bio
-Wall Garden (project name) is the brainchild of Cameron Pilchard, a genre-fluid rock artist who builds intricate, emotionally raw music from his bedroom. Inspired by acts like Radiohead, Pink Floyd, Car Seat Headrest, and Talk Talk, his upcoming concept album _You Are Not Invited_ explores anxiety, loneliness, and human connection through experimental soundscapes and narrative structure.
+Wall Garden (project name) is the brainchild of Cameron Pilchard, an indie artist who builds intricate, emotionally raw music from his bedroom. His upcoming concept album _You Are Not Invited_ explores anxiety, loneliness, and human connection through experimental soundscapes and narrative structure.
 
 ## Q/A
 ### General questions
@@ -27,7 +27,7 @@ Wall Garden (project name) is the brainchild of Cameron Pilchard, a genre-fluid 
 - but if you are looking for a new sound to listen to, you might enjoy so why not check it out 🤷‍♂️
 
 **_What's your sound?_**
-- I have been compared to U2, Pink Floyd, Radiohead, Tame Impala, and Jack White, among others.
+- I have been compared to _U2_, _Coldplay_, _Radiohead_, _Tame Impala_, and _Jack White_, among others.
 
 **_Have you released anything?_**
 - Not as of late but I plan on doing so starting in May/June of 2025. So expect to see my songs start to crop up on your favorite streaming service
@@ -37,7 +37,7 @@ Wall Garden (project name) is the brainchild of Cameron Pilchard, a genre-fluid 
 - In general, I blend rock with ambient, post-rock, electronic, and experimental elements.
 
 **_Who are your favorite artists?_**
-- I like listening to all kinds of music. But I have a few favorites—Pink Floyd, Radiohead, Foo Fighters, Talk Talk, GY!BE, Car Seat Headrest, The Protomen, and Jack White to name a few
+- I like listening to all kinds of music. But I have a few favorites—Pink Floyd, Radiohead, Foo Fighters, Talk Talk, GY!BE, Car Seat Headrest, The Protomen, and Jack White to name a few. I like to think of my sound in a similar manner to the 
 - I also like some Western classical composers like Beethoven (5th, 7th and 9th are my favs), Ravel, Rachmaninoff (2nd symphony is my fav), and Mahler (3rd symphony my fav)
 
 ### For Musicians / Gearheads
