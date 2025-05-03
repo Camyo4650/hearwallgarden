@@ -38,11 +38,12 @@ Wall Garden (project name) is the brainchild of Cameron Pilchard, an indie artis
 
 **_Who are your favorite artists?_**
 - I like listening to all kinds of music. But I have a few favorites—Pink Floyd, Radiohead, Foo Fighters, Talk Talk, GY!BE, Car Seat Headrest, The Protomen, Unknown Mortal Orchestra, and Jack White, to name a few.
-- I also like some Western classical composers like Beethoven (5th, 7th and 9th are my favs), Ravel, Rachmaninoff (2nd symphony is my fav), and Mahler (3rd symphony my fav)
+- I also like some Western classical composers like Beethoven (5th, 7th and 9th are my favs), Ravel, Lili Boulanger, Rachmaninoff (2nd symphony is my fav), and Mahler (3rd symphony my fav)
 
 ### For Musicians / Gearheads
-_What's your gear like?_
-- Logic Pro, a Yamaha P-125 for keys, and a Fender Player Plus Stratocaster—the Cherry Sunburst Solid Body. I mix soft synths with distorted organs, weird time signatures, even some bowed instruments (I don't own any violins, violas, or cellos, sadly. I use the library LABS, my beloved) 
+**_What's your gear like?_**
+- Logic Pro, a Yamaha P-125 for keys, and a Fender Player Plus Stratocaster—the Cherry Sunburst Solid Body.
+- I mix soft synths with distorted organs, weird time signatures, even some bowed instruments (I don't own any violins, violas, or cellos, sadly. I use the library LABS, my beloved) 
 
 ---
 
