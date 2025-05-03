@@ -24,20 +24,20 @@ Wall Garden (project name) is the brainchild of Cameron Pilchard, an indie artis
 
 **_Why should I care?_**
 - idk 🏃‍♂️
-- but if you are looking for a new sound to listen to, you might enjoy so why not check it out 🤷‍♂️
+- but if you are looking for a new sound to listen to, you might enjoy it, so why not check it out 🤷‍♂️
 
 **_What's your sound?_**
-- I have been compared to _U2_, _Coldplay_, _Radiohead_, _Tame Impala_, and _Jack White_, among others.
+- I have been compared to _U2_, _Coldplay_, and _Radiohead_, among others.
 
 **_Have you released anything?_**
-- Not as of late but I plan on doing so starting in May/June of 2025. So expect to see my songs start to crop up on your favorite streaming service
+- Not as of late, but I plan on doing so starting in May/June of 2025. So expect to see my songs begin to crop up on your favorite streaming service
 
 **_What makes your music different?_**
-- I'm very much alternative, but my music has lots of variation. I love working across different styles. Some songs are short and sweet; others are sprawling, theatrical journeys. If you like variety, you’ll probably find something that resonates
-- In general, I blend rock with ambient, post-rock, electronic, and experimental elements.
+- I'm alternative—my music comes in many flavors. I love working across different styles. Some songs are short and sweet; others are sprawling, theatrical journeys. If you like variety, you’ll probably find something that resonates 😁
+- I like to use an eclectic blend of elements. I love using elements of psychedelia, progressive rock, post-rock, jazz fusion, ambient, electronic, and experimental music.
 
 **_Who are your favorite artists?_**
-- I like listening to all kinds of music. But I have a few favorites—Pink Floyd, Radiohead, Foo Fighters, Talk Talk, GY!BE, Car Seat Headrest, The Protomen, and Jack White to name a few. I like to think of my sound in a similar manner to the 
+- I like listening to all kinds of music. But I have a few favorites—Pink Floyd, Radiohead, Foo Fighters, Talk Talk, GY!BE, Car Seat Headrest, The Protomen, Unknown Mortal Orchestra, and Jack White, to name a few.
 - I also like some Western classical composers like Beethoven (5th, 7th and 9th are my favs), Ravel, Rachmaninoff (2nd symphony is my fav), and Mahler (3rd symphony my fav)
 
 ### For Musicians / Gearheads
